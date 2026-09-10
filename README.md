@@ -1,1 +1,1 @@
-# Anwaerterlehrgang
+# Anwärterlehrgang
